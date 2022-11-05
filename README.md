@@ -6,7 +6,7 @@
 ![image](https://user-images.githubusercontent.com/78636238/197790522-248ed1c1-3427-4f85-9445-a1aaf6a96bee.png)
 
 ### BlackBoard, TV and Desk
-![image](https://user-images.githubusercontent.com/78636238/197808751-709c6744-01d3-4429-985b-8b6c72002608.png)
+![iamge](https://user-images.githubusercontent.com/78636238/200128279-e477fa4e-888a-4e5a-8413-11c12f55c520.png)
 
 ### Bulletin
 ![image](https://user-images.githubusercontent.com/78636238/199661143-af6eb372-c359-449c-8962-1324eff2bc5d.png)
